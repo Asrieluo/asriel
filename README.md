@@ -6,8 +6,8 @@
       <td>
   <sub>playing expectations by olivia rodrigo . . .</sub>  
         
-  $${\color{#f45c9c}\space ( · ❛ ֊ ❛)　 \space then \space   ֶָ   ࣪   ׅ  }$$　
-   $${\color{#f7aca7}\space these \space days \space ive}$$ $${\color{#d8c9d9}\space got \space expectations  \space ₎₎ $$ <img width="40" alt="musicnota" src="https://github.com/user-attachments/assets/8d5b2f01-8070-40a5-81a6-0c0a6a12771b" />
+  $${\color{#f45c9c}\space ( · ❛ ֊ ❛) \space   ֶָ   ࣪   ׅ  }$$　
+   $${\color{#f7aca7}\space these \space days \space ive}$$ $${\color{#d8c9d9}\space got \space expectations  \space ₎₎ }$$ <img width="40" alt="musicnota" src="https://github.com/user-attachments/assets/8d5b2f01-8070-40a5-81a6-0c0a6a12771b" />
 <br>    
 <img width="40" alt="jumperwhoschoppeduphead" src="https://github.com/user-attachments/assets/cfb5679d-28ad-4de1-bbb0-080fc9d0f635" /> $${\color{#575657}\space i \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#e09e8c}\space got \space big  ֶָ}$$ $${\color{#fbd1d2} expectations   ֶָ}$$ <br>
    </td>
