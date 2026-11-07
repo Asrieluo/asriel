@@ -1,3 +1,6 @@
+
+[document](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk)
+
 <img width="390" alt="ggfuggineasy" src="https://github.com/user-attachments/assets/00041adc-41c7-4a6c-af75-6defbcbe0871" />
 
 <img width="329" div align=left alt="whatdatmean" src="https://github.com/user-attachments/assets/56b69ebb-28ff-4b25-973b-19f21ca56316" />
